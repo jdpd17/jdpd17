@@ -9,3 +9,4 @@
 ### Little More About Me  
 
 I like to spend my free time watching tv shows and movies, horror and comedy ones are my favourite ones, it's really relaxing for me. I also play the piano and violin, but I stopped going to classes some yearsw ago because of the pandemic, so I play on my own. I also like to cook, and spend time with my dog.
+<img src="https://imgur.com/rilHVxA.png"/>
