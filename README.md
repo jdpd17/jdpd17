@@ -2,7 +2,7 @@
 
 ## José David Pico
 - 🔭 I’m a Student at Colegio San José de las Vegas in Medellín
-- 📫 **How to reach me**: [Email](picojosedavid@gmail.com)
+- 📫 **How to reach me**: picojosedavid@gmail.com
 - ⚡ **Unbelievable fact**: I don't like cheese!
 
 
